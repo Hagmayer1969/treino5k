@@ -1,2 +1,2 @@
-treino5k-hagmayer1969s-projects.vercel.app
-treino5k-hagmayer1969s-projects.vercel.app
+Plano de Treinamento 
+(https://vercel.com/hagmayer1969s-projects/treino5k/5v9scpTNnYARe6WAJ2RyWVLj38Qz)
